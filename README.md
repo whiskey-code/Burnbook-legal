@@ -1,0 +1,2 @@
+# Burnbook-legal
+Privacy Policy 
